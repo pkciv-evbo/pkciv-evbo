@@ -37,7 +37,7 @@ interaction list :
 interact freely without worries; unless you fall under the categories listed in the iwc/dni list !!
 
 
-iwc ( interact with caution ) : mirrorshippers (dniuid), if you hate/dislike my fandoms, or certain characters I like ( said characters listed above )
+iwc ( interact with caution ) : mirrorshippers (I don't mind, just don't bring it up constantly), if you hate/dislike my fandoms, or certain characters I like ( said characters listed above )
 
 
 dni : controversial topics ex; zoophiles, necrophiles, pedophiles, racism, homophobia, transphobia, xenophobia, etc. + people who support these topics
