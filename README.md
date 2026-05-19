@@ -8,7 +8,7 @@ ABOUT ME
 
 • aliases : koii / koiixat / pkcivev3
 
-• call me "koii" ! ( yes, koii with two i's, although I don't mind being called koi as well ! )
+• call me "koii" ! (yes, koii with two i's, although I don't mind being called koi as well !)
 
 • I am fine with any pronouns !
 
@@ -26,7 +26,7 @@ Purple , Animation VS Minecraft ( comfchar )
 
 The Dark Lord/TDL , Animator VS Animation ( fav char )
 
-PKCIV!Evbo , Parkour Civilization/Evboverse ( fav char , comfchar , kin )
+PKCIV!Evbo , Parkour Civilization/Evboverse ( fav char , hvycomfchar )
 
 • certified evboverse lore enthusiast, theorist, professional glazer, and fanartist 👀 yes, I do watch his unscripted content too!
 
