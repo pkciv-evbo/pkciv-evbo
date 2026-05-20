@@ -4,47 +4,36 @@
 ___________________
 
 
-ABOUT ME
+# $\textcolor{#945fa3}{ABOUT ME}$
 
-• aliases : koii / koiixat / pkcivev3
-
-• call me "koii" ! (yes, koii with two i's, although I don't mind being called koi as well !)
-
-• I am fine with any pronouns !
-
-• 10 / 02 . minor
-
-• multifandom , multishipper , furry , artist , animator
-
-• i like mcyts, lore and fiction .. and doomed gays 👀
-
-• comf/main fdms : ava/m , evboverse
++ $\textcolor{#945fa3}{aliases : koii / koiixat / pkcivev3}$
++ $\textcolor{#945fa3}{call me "koii" ! }$
++ $\textcolor{#945fa3}{ 10 / 02 . minor}$
++ $\textcolor{#945fa3}{multifandom , multishipper , furry , artist , animator}$
++ $\textcolor{#945fa3}{comf/main fdms : ava/m , evboverse}$
 
  — characters :   
  
-Purple , Animation VS Minecraft ( comfchar )
-
-The Dark Lord/TDL , Animator VS Animation ( fav char )
-
-PKCIV!Evbo , Parkour Civilization/Evboverse ( fav char , hvycomfchar )
-
-• certified evboverse lore enthusiast, theorist, professional glazer, and fanartist 👀 yes, I do watch his unscripted content too!
+Purple , Animation VS Minecraft ( comfchar )<br>
+The Dark Lord/TDL , Animator VS Animation ( fav char )<br>
+PKCIV!Evbo , Parkour Civilization/Evboverse ( fav char , hvycomfchar )<br>
+<br>
+<br>
+certified evboverse lore enthusiast, theorist, professional glazer, and fanartist 👀 yes, I do watch his unscripted content too!
 
 ___________________
 
-interaction list :
+# $\textcolor{#945fa3}{interaction list :}$
 
 interact freely without worries; unless you fall under the categories listed in the iwc/dni list !!
-
-
-iwc ( interact with caution ) : mirrorshippers (I don't mind, just don't bring it up constantly), if you hate/dislike my fandoms, or certain characters I like ( said characters listed above )
-
-
-dni : controversial topics ex; zoophiles, necrophiles, pedophiles, racism, homophobia, transphobia, xenophobia, etc. + people who support these topics
+<br>
+<br>
++ iwc ( interact with caution ) : mirrorshippers (I don't mind, just don't bring it up constantly), if you hate/dislike my fandoms, or certain characters I like ( said characters listed above )
++ dni : controversial topics ex; zoophiles, necrophiles, pedophiles, racism, homophobia, transphobia, xenophobia, etc. + people who support these topics
 
 ___________________
 
 
-NOTE ; everything listed above is subject to change, I might add more information, edit, or remove some existing info.
+$\textcolor{#945fa3}{NOTE}$ ; everything listed above is subject to change, I might add more information, edit, or remove some existing info.
 
 <img width="600" height="166" alt="Untitled2009_20260514072124" src="https://github.com/user-attachments/assets/3e0f0a91-b6dc-4343-88b9-148427ad313e" />
