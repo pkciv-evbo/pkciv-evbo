@@ -4,7 +4,7 @@ ___________________
 
 # $\textcolor{#dfdea9}{ABOUT ME -🍀}$ 
 
-+ $\textcolor{#748863}{aliases : koii / koiixat / pkcivev3}$
++ $\textcolor{#748863}{aliases : koii / koiixat}$
 + $\textcolor{#748863}{call me "koii" ! }$
 + $\textcolor{#748863}{ 10 / 02 . minor}$
 + $\textcolor{#748863}{multifandom , multishipper , furry , artist , animator}$
