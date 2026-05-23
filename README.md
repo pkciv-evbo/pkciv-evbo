@@ -21,7 +21,7 @@ $\textcolor{#748863}{(&thinsp;i&thinsp;am&thinsp;a&thinsp;kinnie&thinsp;for&thin
 <br>
 certified evboverse lore enthusiast, theorist, professional glazer, and fanartist 👀 yes, I do watch his unscripted content too!
 <br><br>
-Evboverse related stuff I wrote !!: <br> [<img width="169" height="166" alt="Untitled2093_20260523130525" src="https://github.com/user-attachments/assets/dcc35ff3-fb41-42ae-983f-cd8a52b240f8" />](https://docs.google.com/document/d/1gWbShjfMNrEVoAHnT43TKB2u6Q6aGdLBiauTbDTaFEY/edit?usp=drivesdk)
+↓↓↓ Evboverse related stuff I wrote !! ^_^ <br> [<img width="169" height="166" alt="Untitled2093_20260523130525" src="https://github.com/user-attachments/assets/dcc35ff3-fb41-42ae-983f-cd8a52b240f8" />](https://docs.google.com/document/d/1gWbShjfMNrEVoAHnT43TKB2u6Q6aGdLBiauTbDTaFEY/edit?usp=drivesdk)
 
 ___________________
 
