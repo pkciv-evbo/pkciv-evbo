@@ -2,7 +2,8 @@
 
 ___________________
 ## $\textcolor{#6D89DD}{short&thinsp;notice&thinsp;: }$
-do not copy/take HEAVY inspiration from any of my skins !! light inspo is ok ^_^ <br>
+do not copy/take HEAVY inspiration from any of my skins !! lesser degrees of inspo are ok, just ask me in whisper chat/personally if whispers are off first! ^_^
+<br>
 $\textcolor{#6D89DD}{(&thinsp;especially&thinsp;my&thinsp;evbo&thinsp;skins&thinsp;plz&thinsp;</3&thinsp;)}$
 <br><br>$\textcolor{#D1DFFC}{always&thinsp;@&thinsp;spawn&thinsp;or&thinsp;with&thinsp;friends&thinsp;!&ensp;safeserver&thinsp;1}$<br>
 I only interact if someone interacts first </3 im shy 🙏
