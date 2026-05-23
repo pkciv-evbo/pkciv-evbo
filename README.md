@@ -28,7 +28,7 @@ ___________________
 interact freely without worries; $\textcolor{#748863}{unless}$ you fall under the categories listed in the iwc/dni list !!
 <br>
 <br>
-+ iwc ( interact with caution ) : mirrorshippers (I don't mind, just don't bring it up constantly), if you hate/dislike my fandoms, or certain characters I like $\textcolor{#dfdea9}{(&thinsp;said characters listed above&thinsp;)}$
++ iwc ( interact with caution ) : mirrorshippers (I don't mind, just don't bring it up too often especially if it's of my fav characters), if you hate/dislike my fandoms, or certain characters I like $\textcolor{#dfdea9}{(&thinsp;said characters listed above&thinsp;)}$
 + dni : controversial topics ex; zoophiles, necrophiles, pedophiles, racism, homophobia, transphobia, xenophobia, etc. + people who support these topics
 
 ___________________
