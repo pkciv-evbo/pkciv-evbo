@@ -8,7 +8,7 @@ do not copy/take HEAVY inspiration from any of my skins !! light inspo is ok ^_^
 I only interact if someone interacts first </3 im shy 🙏
 <br><br>
 im more likely to be more talkative if we share similar interests<br>
-casual fan for all other fandoms im in that werent mentioned in main repository<br><br>
+casual fan for all other fandoms im in that werent mentioned in main account<br><br>
 $\textcolor{#6D89DD}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&thinsp;HUGE&thinsp;evbo&thinsp;fan&thinsp;and&thinsp;WILL&thinsp;mention/reference&thinsp;him&thinsp;every&thinsp;chance&thinsp;I&thinsp;get&ensp;)}$
 <br><br>
-this is the same information as my main account's repository "ponytown-info", just putting it here aswell
+this is mostly the same information as my main account's repository "ponytown-info", just putting it here aswell
