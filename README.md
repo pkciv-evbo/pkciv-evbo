@@ -14,4 +14,4 @@ $\textcolor{#D1DFFC}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&th
 <br><br>
 
 this is mostly the same information as my main account's repository "ponytown-info", just putting it here aswell
-<br><br>↓↓↓ Evboverse related stuff I wrote !! ^_^<br> [<img width="169" height="166" alt="Untitled2098_20260523195717" src="https://github.com/user-attachments/assets/570257e0-7086-4cff-a453-ccc9aec9f8c7" />](https://docs.google.com/document/d/1gWbShjfMNrEVoAHnT43TKB2u6Q6aGdLBiauTbDTaFEY/edit?usp=drivesdk)
+<br><br>
