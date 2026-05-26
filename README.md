@@ -15,4 +15,4 @@ $\textcolor{#D1DFFC}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&th
 
 this is mostly the same information as my main account's repository "ponytown-info", just putting it here aswell
 <br><br>
-If you see me online after 9pm PST, I won't respond to messages 99% of the time around that time frame as I'm sleeping with the app running
+$\textcolor{#6D89DD}{If&thinsp;you&thinsp;see&thinsp;me&thinsp;online&thinsp;after&thinsp;9:30PST&thinsp;,I&thinsp;won't&thinsp;respond&thinsp;to&thinsp;messages&thinsp;99&thinsp;percent&thinsp;of&thinsp;the&thinsp;time&thinsp;as&thinsp;I'm&thinsp;most&thinsp;likely&thinsp;sleeping&thinsp;with&thinsp;the&thinsp;app&thinsp;running}$
