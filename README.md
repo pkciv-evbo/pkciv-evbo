@@ -15,3 +15,4 @@ $\textcolor{#D1DFFC}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&th
 
 this is mostly the same information as my main account's repository "ponytown-info", just putting it here aswell
 <br><br>
+If you see me online after 9pm PST, I won't respond to messages 99% of the time around that time frame as I'm sleeping with the app running
