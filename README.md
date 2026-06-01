@@ -11,9 +11,6 @@ I only interact if someone interacts first </3 im shy 🙏
 im more likely to be more talkative if we share similar interests<br>
 casual fan for all other fandoms im in that werent mentioned in main account<br><br>
 $\textcolor{#D1DFFC}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&thinsp;HUGE&thinsp;evbo&thinsp;fan&thinsp;and&thinsp;WILL&thinsp;mention/reference&thinsp;him&thinsp;every&thinsp;chance&thinsp;I&thinsp;get&ensp;)}$
-<br><br>
-
-this is mostly the same information as my main account's repository "ponytown-info", just putting it here aswell
-<br><br>
-$\textcolor{#6D89DD}{If&thinsp;you&thinsp;see&thinsp;me&thinsp;online&thinsp;after&thinsp;9:30pmPST&thinsp;,I&thinsp;won't&thinsp;respond&thinsp;to&thinsp;messages&thinsp;99&thinsp;percent&thinsp;of&thinsp;the&thinsp;time&thinsp;as&thinsp;I'm&thinsp;most&thinsp;likely&thinsp;sleeping&thinsp;with&thinsp;the&thinsp;app&thinsp;running}$
-Evbo mischaracterization (both irl Evbo and canon Evbo) dni / hvyiwec if friend unless obviously satire/joking. Thank you. <br>
+<br>
+$\textcolor{#6D89DD}{If&thinsp;you&thinsp;see&thinsp;me&thinsp;online&thinsp;after&thinsp;9:30pmPST&thinsp;,I&thinsp;won't&thinsp;respond&thinsp;to&thinsp;messages&thinsp;99&thinsp;percent&thinsp;of&thinsp;the&thinsp;time&thinsp;as&thinsp;I'm&thinsp;most&thinsp;likely&thinsp;sleeping&thinsp;with&thinsp;the&thinsp;app&thinsp;running}$<br><br>
+Evbo mischaracterization (both c/character!Evbo and cc/irl!Evbo) dni/hvyiwec if friend unless obviously satire/joking. Thank you. <br>
