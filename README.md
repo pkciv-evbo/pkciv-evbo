@@ -9,8 +9,10 @@ $\textcolor{#6D89DD}{(&thinsp;especially&thinsp;my&thinsp;evbo&thinsp;skins&thin
 I only interact if someone interacts first </3 im shy 🙏
 <br><br>
 im more likely to be more talkative if we share similar interests<br>
-casual fan for all other fandoms im in that werent mentioned in main account<br><br>
++ main fandoms: evboverse, ava/m<br>
++ other fandoms/interests: awtde, the wifies debunk, statesmp, ALMOST anything mcyt related in general, tadc<br><br>
 $\textcolor{#D1DFFC}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&thinsp;HUGE&thinsp;evbo&thinsp;fan&thinsp;and&thinsp;WILL&thinsp;mention/reference&thinsp;him&thinsp;every&thinsp;chance&thinsp;I&thinsp;get&ensp;)}$
 <br>
-$\textcolor{#6D89DD}{If&thinsp;you&thinsp;see&thinsp;me&thinsp;online&thinsp;after&thinsp;9:30pmPST&thinsp;,I&thinsp;won't&thinsp;respond&thinsp;to&thinsp;messages&thinsp;99&thinsp;percent&thinsp;of&thinsp;the&thinsp;time&thinsp;as&thinsp;I'm&thinsp;most&thinsp;likely&thinsp;sleeping&thinsp;with&thinsp;the&thinsp;app&thinsp;running}$<br><br>
+whisper&thinsp;2&thinsp;int&thinsp;if&thinsp;seemingly unresponsive/afk,&thinsp;if&thinsp;no&thinsp;further&thinsp;response&thinsp;then&thinsp;afk/offtab/occupied
+<br><br>
 all art & character sprites uploaded/used in github profiles is made by me<br>
