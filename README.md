@@ -2,7 +2,7 @@
 ](https://youtu.be/Et4yWgiRQgM?si=yaKlCGKMn3exxTOr)
 ___________________
 ## $\textcolor{#A99B6F}{short&thinsp;notice&thinsp;: }$
-do not copy/take heavy inspiration from any of my skins !! ^_^
+do not copy/take inspiration from any of my skins !! ^_^
 <br>
 $\textcolor{#A99B6F}{(&thinsp;especially&thinsp;my&thinsp;evbo&thinsp;skins&thinsp;plz&thinsp;</3&thinsp;)}$
 <br><br>$\textcolor{#DDA290}{always&thinsp;@&thinsp;spawn&thinsp;or&thinsp;with&thinsp;friends&thinsp;!&ensp;safeserver&thinsp;1}$<br>
