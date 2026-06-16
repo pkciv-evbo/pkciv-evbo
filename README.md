@@ -3,20 +3,20 @@
 ___________________
 
 
-# $\textcolor{#dfdea9}{ABOUT ME -🍀}$ 
+# $\textcolor{#DBB68C}{ABOUT ME -🍀}$ 
 
-+ $\textcolor{#748863}{aliases :&ensp;koii / koiixat}$
-+ $\textcolor{#748863}{call&thinsp;me&thinsp;"koii" ! }$
-+ $\textcolor{#748863}{ 10 / 02 . minor}$
-+ $\textcolor{#748863}{multifandom ,&thinsp;multishipper ,&thinsp;furry ,&thinsp;artist ,&thinsp;animator}$
-+ $\textcolor{#748863}{comf/main fdms : ava/m , evboverse}$
++ $\textcolor{#D8462C}{aliases :&ensp;koii / koiixat}$
++ $\textcolor{#D8462C}{call&thinsp;me&thinsp;"koii" ! }$
++ $\textcolor{#D8462C}{ 10 / 02 . minor}$
++ $\textcolor{#D8462C}{multifandom ,&thinsp;multishipper ,&thinsp;furry ,&thinsp;artist ,&thinsp;animator}$
++ $\textcolor{#D8462C}{comf/main fdms : ava/m , evboverse}$
 
-$\textcolor{#dfdea9}{ — characters :   }$
+$\textcolor{#DBB68C}{ — characters :   }$
  
 Purple , Animation VS Minecraft ( comfchar )<br>
 The Dark Lord/TDL , Animator VS Animation ( fav char )<br>
 PKCIV!Evbo , Parkour Civilization/Evboverse ( fav char , comfchar )
-$\textcolor{#748863}{(&thinsp;i&thinsp;am&thinsp;a&thinsp;kinnie&thinsp;for&thinsp;all&thinsp;of&thinsp;the&thinsp;(&ensp;canon to evboverse lore&ensp;)&thinsp;Evbo s&thinsp;)}$
+$\textcolor{#DBB68C}{(&thinsp;i&thinsp;kin&thinsp;all&thinsp;of&thinsp;the&thinsp;(&ensp;canon to evboverse lore&ensp;)&thinsp;Evbo s&thinsp;)}$
 <br>
 <br>
 <br>
@@ -24,18 +24,18 @@ certified evboverse lore enthusiast, theorist, professional glazer, and fanartis
 <br><br>
 ___________________
 
-# $\textcolor{#748863}{interaction list :}$
+# $\textcolor{#D8462C}{interaction list :}$
 
-interact freely without worries; $\textcolor{#748863}{unless}$ you fall under the categories listed in the iwc/dni list !!
+interact freely without worries; $\textcolor{#D8462C}{unless}$ you fall under the categories listed in the iwc/dni list !!
 <br>
 <br>
-+ iwc ( interact with caution ) : mirrorshippers (I don't mind, just don't bring it up too often especially if it's of my fav characters), if you hate/dislike my fandoms, or certain characters I like $\textcolor{#dfdea9}{(&thinsp;said characters listed above&thinsp;)}$
-+ dni : controversial topics ex; zoophiles, necrophiles, pedophiles, racism, homophobia, transphobia, xenophobia, etc. + people who support these topics
++ iwc ( interact with caution ) : larpers of my fandoms, if you hate/dislike my fandoms, or certain characters I like $\textcolor{#DBB68C}{(&thinsp;said characters listed above&thinsp;)}$
++ dni : controversial topics ex; zoophiles, necrophiles, pedophiles, racism, homophobia, transphobia, xenophobia, etc. + people who support these topics, evbocest enjoyers
 
 ___________________
 
 
-$\textcolor{#dfdea9}{NOTE}$ ; everything listed above is subject to change, I might add more information, edit, or remove some existing info<br>
+$\textcolor{#D8462C}{NOTE}$ ; everything listed above is subject to change, I might add more information, edit, or remove some existing info<br>
 <br>
 <br>
 <img width="600" height="166" alt="Untitled2092_20260522173905" src="https://github.com/user-attachments/assets/e8bcf740-e510-4e1b-b59e-1c2f30bbf172" />
