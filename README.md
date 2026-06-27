@@ -16,7 +16,7 @@ $\textcolor{#DBB68C}{ — FAVORITES :   }$
 Purple , Animation VS Minecraft ( comfort character )<br>
 The Dark Lord/TDL , Animator VS Animation ( fav character )<br>
 Evbo , Evboverse ( comfort/fav character + mcyt ) 
-$\textcolor{#DBB68C}{(&thinsp;i&thinsp;kin&thinsp;all&thinsp;of&thinsp;the&thinsp;(&ensp;canon to evboverse lore&ensp;)&thinsp;c!Evbo s&thinsp;)}$
+$\textcolor{#DBB68C}{(&thinsp;i&thinsp;kin&thinsp;all&thinsp;the&thinsp;canon&thinsp; character!Evbo s&thinsp;)}$
 <br>
 <br>
 <br>
@@ -26,11 +26,11 @@ ___________________
 
 # $\textcolor{#D8462C}{interaction list :}$
 
-interact freely without worries; $\textcolor{#D8462C}{unless}$ you fall under the categories listed in the iwc/dni list !!
+interact freely without worries; $\textcolor{#D8462C}{unless}$ you fall under the categories listed below
 <br>
 <br>
-+ iwc ( interact with caution ) : larpers of my fandoms, if you hate/dislike my fandoms, certain characters or ships I like $\textcolor{#DBB68C}{(&thinsp;said characters listed above&thinsp;)}$
-+ dni : controversial topics ex; zoophiles, necrophiles, pedophiles, racism, homophobia, transphobia, xenophobia, etc. + people who support these topics, evbocest enjoyers
++ iwc ( interact with caution ) : if you dislike ships I enjoy/characters I like $\textcolor{#DBB68C}{(&thinsp;said characters listed above&thinsp;)}$
++ dni : basic criteria, boundary breakers, evbocest enjoyers
 
 ___________________
 
