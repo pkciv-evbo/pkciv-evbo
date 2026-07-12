@@ -17,7 +17,3 @@ $\textcolor{#898C85}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&th
 <i>all art & character sprites uploaded/used in github profiles is made by me <br></i></p>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=898C85&center=true&vCenter=true&width=435&lines=%3C+end+of+text+%3E)](https://git.io/typing-svg)
-
-[<img width="1920" height="1080" alt="Untitled2343_20260712174029" src="https://github.com/user-attachments/assets/4057d8df-e3a3-45a9-993f-32058b2fc74c" />](https://www.youtube.com/@koiixat)
-<br>
-[ <img width="1920" height="1080" alt="Untitled2343_20260712174016" src="https://github.com/user-attachments/assets/e6028e58-d6db-4ab8-ace3-e0e327607b9f" />](https://koiixat.straw.page)
