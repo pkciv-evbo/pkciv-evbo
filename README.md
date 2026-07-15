@@ -9,8 +9,7 @@
 
 + main fandoms: evboverse, ava/m<br>
 
-+ other fandoms/interests: awtde, the wifies debunk, statesmp 2.5,
-  ALMOST anything mcyt related in general, tadc<br><br>
++ other fandoms/interests listed in strawpage<br><br>
 $\textcolor{#898C85}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&thinsp;HUGE&thinsp;evbo&thinsp;fan&thinsp;and&thinsp;WILL&thinsp;mention/reference&thinsp;him&thinsp;every&thinsp;chance&thinsp;I&thinsp;get&ensp;)}$<br>
 <br><b>whisper&thinsp;to&thinsp;interact&thinsp;if&thinsp;seemingly unresponsive/afk,&thinsp;if&thinsp;no&thinsp;further&thinsp;response&thinsp;then&thinsp;afk/offtab/occupied</b>
 <br><br>
