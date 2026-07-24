@@ -15,4 +15,4 @@ $\textcolor{#898C85}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&th
 <br><br>
 <i>all art & character sprites uploaded/used in github profiles is made by me <br></i></p>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=898C85&center=true&vCenter=true&width=435&lines=%3C+end+of+text+%3E)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=35&pause=1100&color=898C85&background=441A3400&center=true&vCenter=true&random=true&width=1000&height=45&lines=%C2%AB+end+of+text+%C2%BB)](https://git.io/typing-svg)
