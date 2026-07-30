@@ -5,5 +5,3 @@
 <p align =center>$\textcolor{#A8997A}{━ he/she/they&thinsp;(any)&thinsp;!&thinsp;c!Evbo&thinsp;kinnie&thinsp;━}$ <br><br>
   $\textcolor{#B6616D}{━see&thinsp;strawpage&thinsp;for&thinsp;more&thinsp;info&thinsp;!━}$</p>
 <p align =center><img width="238" height="48" alt="17854160637381251541378624750713" src="https://github.com/user-attachments/assets/2ff4b0e1-6853-4bfd-a613-d951100f3b56" />
-
-—> ![](https://komarev.com/ghpvc/?username=evboglazer&label=parkour+jumps+completed+!&abbreviated=true&color=B6616D)
