@@ -2,7 +2,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=39&duration=5697&pause=45&color=E83332&background=E833320A&center=true&vCenter=true&random=true&width=1000&height=48&lines=and+so%2C+i+created+my+own+world+.)](https://git.io/typing-svg)
 
-$$ \color{#E83332} \mathbf{━ any/no&things;pronouns&thinsp;!&thinsp;yes&thinsp;i&thinsp;like&thinsp;c!Evbo&thinsp;━} $$
+$$ \color{#E83332} \mathbf{━ any/no&thinsp;pronouns&thinsp;!&thinsp;yes&thinsp;i&thinsp;like&thinsp;c!Evbo&thinsp;━} $$
 
 $$ \color{#E83332} \mathbf{━see&thinsp;strawpage&thinsp;for&thinsp;more&thinsp;info&thinsp;!━} $$
 
